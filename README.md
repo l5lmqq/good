@@ -28,7 +28,7 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱 𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌:- [TERMUX Hussein AIL](https://t.me/MR_HC6)
+- 📱 𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌:- [𝗣𝗥𝗢𝗚𝗥𝗔𝗠𝗠𝗜𝗡𝗚: Hussein ALI](https://t.me/MR_HC6)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
